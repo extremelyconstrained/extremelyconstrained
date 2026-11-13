@@ -1,4 +1,8 @@
-## Hi there 👋
+## Well hello - I'm constrained (literally)
+
+- have a wonderful day/afternoon/night please
+- people really care about you
+- better things to spend time on over internet
 
 <!--
 **extremelyconstrained/extremelyconstrained** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
